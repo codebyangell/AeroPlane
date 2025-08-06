@@ -29,4 +29,4 @@ Descubra o melhor da sua próxima viagem com facilidade e segurança. O **AeroPl
 
 ---
 
-Feito com 💖 por *Angell ツ ® 2025*
+Feito com 💖 por *Angell ツ ® 2024*
